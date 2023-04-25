@@ -5,6 +5,7 @@
 ![cropped](https://imagedelivery.net/A5gbiev6F8AaBvp6M146Kw/e5089b71-1943-4aa8-ff18-17292224c700/productCard)
 
 • External Fortnite AI Softaim
+
 • Easy to use, safe for tournaments and usage on main account
 
 
